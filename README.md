@@ -1,1 +1,1 @@
-# Shriyansh10.github.io
+# https://shriyansh10.github.io/Cursor/
